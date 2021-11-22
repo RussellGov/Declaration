@@ -190,12 +190,6 @@ Freedom means involvement, responsibility, consciousness, reason, and perfect ag
 
 The second and third greatest riches of the universe are **humus** and **drinking water**.
 
-Life in the universe, and in particular in our galactic dial, is populated by civilizations, some of which have made serious and fatal mistakes. These mistakes must not be repeated, so that perhaps we can help them in another way than the one they have planned with the consent of the powerful of this world, by taking possession of our planet, by means of deception and manipulation.
-
-This must be said and known to all.
-
-## Recommendations
-
 As far as we are concerned, humus, the starting point of the chain of life, which is only present on thirty centimetres of the Earth's surface, and drinking water, in barely sufficient quantity for all, but unfortunately greatly contaminated, must be protected as a matter of extreme priority.
 
 Similarly, the DNA of all living organisms, including humans, must be protected with the utmost severity.
