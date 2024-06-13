@@ -262,4 +262,4 @@ The challenge of the coming-of-age of Earth's civilization, at the dawn of its o
 All persons agreeing to any of these terms are free to consider themselves under the jurisdiction of the ℝussell Government.
 
 Created on 21/11/2021
-Amended and corrected on 13/06/2024 
+Amended and corrected on 13/06/2024
