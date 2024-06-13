@@ -1,58 +1,58 @@
 ℝ𝕌𝕊𝕊𝔼𝕃𝔾𝕠𝕧
 
-# Préambule
+# Preamble
 
-Là où l'injustice règne, il faut un recourt pour venir en aide aux personnes opprimées par leurs inexpugnables gouvernements.
+Wherever injustice reigns, a remedy is needed to come to the aid of those oppressed by their impregnable governments.
 
-Le Gouvernement Russell se propose de constituer un recourt informel qui agrège la volonté populaire autour de normes librement consenties.
+The Russell Government proposes to constitute an informal recourse that aggregates the popular will around freely consented norms.
 
-La présente déclaration pourra être cosignée par n'importe quel Être Humain résident sur Terre.
+This declaration may be co-signed by any Human Being resident on Earth.
 
-Le Gouvernement Russel consiste à co-fonder la légitimité du peuple à s'autodéterminer.
+The Russell Government consists in co-founding the legitimacy of the people's self-determination.
 
-Elle s'inscrit nécessairement dans le cadre des Droits de l'Homme de 1789 et de la charte des Nations-Unies.
+It necessarily falls within the framework of the Human Rights of 1789 and the Charter of the United Nations.
 
-**Son objet est de déclamer régulièrement des recommandations:u au sujet des droits et la légitimité de personnes, d'organisations ou de mouvements populaires.**
+**Its object is to declare regularly recommendations:u concerning the rights and legitimacy of individuals, organizations or popular movements.**
 
-L'adhésion morale à ces statuts confère la légitimité de l'ensemble des déclamations.
+Moral adherence to these statutes confers legitimacy on all declamations.
 
-Si elle détermine ce qui doit être fait, elle le fait en pensant que cela aurait dû être fait depuis longtemps.
+If it determines what needs to be done, it does so in the belief that it is long overdue.
 
 # Justice
 
-La justice ne s'obtient pas que par la répression, qui doit être symbolique, que par la mise en œuvre de dispositions qui empêcheront à l'avenir que de tels crimes soient commis.
+Justice is achieved not just by repression, which must be symbolic, but by implementing measures that will prevent such crimes from being committed in the future.
 
-Cela implique que les chaînes causales soient examinées et que des actions soient menées sur ces causes.
+This implies examining the causal chains and taking action on these causes.
 
-Les fautes commises ne seront réellement réparées que lorsque les fautifs seront confrontés à leur propre conscience.
+The wrongs committed will only be truly righted when those at fault are brought face to face with their own conscience.
 
-Les coupables pourront être sommés de travailler à la réparation de leurs préjudices, toute aussi dégradante que soit la tâche qui leur sera assignée.
+The culprits can then be called upon to work on repairing their damage, however degrading the task assigned to them may be.
 
-Une culpabilité ne pourra être déclarée qu'à l'issue d'un Tribunal d'Opinion Populaire - un Tribunal Russell - qui se produira au moyen d'un scrutin qui consiste à évaluer les différents niveaux de responsabilité des désastres soumis à l'étude. Un second scrutin déterminera les peines décidées.
+Guilt can only be declared at the end of a Tribunal of Popular Opinion - a Russell Tribunal - which will take place by means of a ballot assessing the different levels of responsibility for the disasters under consideration. A second ballot will determine the penalties.
 
-# Stratégie
+# Strategy
 
-Le gouvernement Russell n'est pas associé à des frontières. Tout individu peut se prévaloir des lois et recommandations du Gouvernement Russell. Leur légitimité se fonde sur leur soutien.
+The Russell government is not bound by borders. Any individual may avail himself of the laws and recommendations of the Russell Government. Their legitimacy is based on their support.
 
-Chacun est libre d'adhérer ou non à ses recommandations, et ainsi de se sentir défendu par le Gouvernement Russell.
+Everyone is free to adhere or not to its recommendations, and thus to feel defended by the Russell Government.
 
-La forme de ce gouvernement est supplétive. Sa crédibilité, sa viabilité, et sa respectabilité, ne reposent que sur l'acceptation de ses recommandations.
+The form of this government is suppletive. Its credibility, viability and respectability depend solely on acceptance of its recommendations.
 
-Ses prémisses sont le droit à l'autodétermination, étendu à l'échelle individuelle. L'autodétermination s'oppose à l'intrusion, la falsification et la dépendance. Elle est la seule garantie d'une Liberté d'évoluer et de s'épanouir, et ceci est valable autant pour un individu qu'à l'échelle d'un peuple.
+Its premises are the right to self-determination, extended to the individual level. Self-determination is opposed to intrusion, falsification and dependence. It is the only guarantee of freedom to evolve and flourish, and this applies equally to an individual and to a people.
 
-Le gouvernement Russell édicte des schémas normatifs, auxquels chacun est libre de souscrire ou non. En édictant ces normes, il s'agit de conforter ceux qui craignent de les suivre en se sentant seuls, et qui craignent la répression tyrannique d'institutions périclitantes. Ils pourront agir "_Au nom du Gouvernement Russell_", avec le soutien de sa Communauté. En prononçant ces mots, ils bénéficieront explicitement de la légitimité de leur autodétermination. Ils conforteront les lois les plus insignes de la civilisation, de la Charte de l'ONU et des Droits de l'Homme.
+The Russell government enacts normative schemes, to which everyone is free to subscribe or not. By enacting these norms, the aim is to comfort those who are afraid to follow them because they feel alone, and who fear the tyrannical repression of failing institutions. They will be able to act "_In the name of the Russell Government_", with the support of its Community. By uttering these words, they will explicitly benefit from the legitimacy of their self-determination. They will be upholding the most insignificant laws of civilization, the UN Charter and Human Rights.
 
-En aucun cas, le fait de ne pas suivre une nouvelle norme édictée ne pourra être considéré comme un affront, une injustice, ou justifier le moindre reproche ou la moindre répression, ni de mépris ou même de façon symbolique. Si une norme édictée par le gouvernement Russell n'est pas suivie, on jugera que cela détermine que sa pertinence est insuffisante.
+Under no circumstances will failure to comply with a new standard be considered an affront, an injustice, or justify the slightest reproach or repression, not even in a symbolic or contemptuous way. If a standard enacted by the Russell government is not followed, this will be deemed to determine that its relevance is insufficient.
 
-Cette aptitude à refuser des normes édictées, qui dépendent de la compréhension et l'approbation de chacun, construit la légitimité des normes qui sont abondamment suivies et appliquées.
+This ability to refuse to accept norms that depend on everyone's understanding and approval builds the legitimacy of norms that are widely followed and applied.
 
-Il en résulte que la discussion politique consistera à débattre des idées, des arguments, non pas dans une atmosphère de défiance et de persuasion, mais dans une atmosphère de recherche dépassionnée de la vérité, dont le consensus s'appuie sur des concepts clairs et démontrables.
+As a result, political discussion will consist of debating ideas and arguments, not in an atmosphere of defiance and persuasion, but in an atmosphere of dispassionate search for the truth, whose consensus is based on clear, demonstrable concepts.
 
-Ceci, cette procédure fonctionnelle, ainsi que la liberté d'y adhérer, est le fondement du gouvernement Russell.
+This, this functional procedure, and the freedom to adhere to it, is the foundation of Russell government.
 
-Son mise en œuvre ne dépend que de la volonté de chacun, de la justice de ses arguments, et constitue un rempart contre la tyrannie des lois injustes édictées par des personnes irresponsables et ivres de pouvoir.
+Its implementation depends solely on the will of each individual and the justice of his or her arguments, and constitutes a bulwark against the tyranny of unjust laws enacted by irresponsible people drunk with power.
 
-Toute recommandation du gouvernement Russell doit être assumée en pleine conscience, et sans aucune pression, soumission, ou hypocrisie.
+Every recommendation of the Russell government must be assumed in full conscience, and without any pressure, submission or hypocrisy.
 
 ☙❦❦❦❦❦❧
 
